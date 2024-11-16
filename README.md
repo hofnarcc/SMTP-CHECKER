@@ -19,3 +19,34 @@ Our powerful tools are designed to help you transform email-password combination
 For questions, updates, and more, connect with us on Telegram: https://t.me/hofnar05_Worm_GPT_bot
 
 ✨ Unleash the power of email management at your fingertips! Download now and take control!
+
+
+
+<a href="https://t.me/hofnar05_Dark_GPT"><img src="https://i.ibb.co/wJ8RcKY/SMTP.gif" alt="HOFNAR05" border="0"></a>
+
+
+
+This tool is 100% created with AI:
+
+<a href="https://hofnar05.club"><img src="https://i.ibb.co/j5Ksp2Y/gpt.gif" alt="gpt" border="0"></a>
+
+
+
+💲    FRAUD SHOP SINCE 2018:
+      https://hofnar05.live
+
+✳️    LEAKS + VOUCH (Telegram Group):
+      https://t.me/BENUMBZ
+
+💳    CC DROP + KILL (Telegram Group):
+      https://t.me/+-zyCVjb-SR4zNDNk 
+
+🤖    hofnar05 Dark AI (Telegram Group):
+      https://t.me/hofnar05_Dark_GPT
+
+🤖    hofnar05 Dark AI (Telegram Bot):
+      hofnar05 🪱 Worm-GPT 🪱
+      https://t.me/hofnar05_Worm_GPT_bot
+
+
+
