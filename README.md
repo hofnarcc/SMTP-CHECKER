@@ -20,7 +20,8 @@ Quickly test your combos by sending emails through SMTP hosts with customizable 
 
 ✨ Unleash the power of email management at your fingertips! Download now and take control!
 
-
+DIRECT DOWNLOAD LINK:
+https://github.com/hofnarcc/SMTP-CHECKER/archive/refs/heads/main.zip
 
 
 This tool is 100% created with AI!
